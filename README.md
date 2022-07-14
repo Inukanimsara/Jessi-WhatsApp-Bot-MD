@@ -1,8 +1,8 @@
 
-<img src="https://telegra.ph/file/57e0679dc28177770f449.jpg" alt="nz" width="350"/>
+<img src="https://i.ibb.co/pLxwXsW/wp5715057.webp" alt="nz" width="350"/>
 </p>
 
-## MS.JESSICA
+## MS.WHITE QUEEN
 
 
 > [Automated Multi Device whatsapp bot created](https://github.com/whiteshadowofficial) by [Mr.White Shadow](https://github.com/whiteshadowofficial)
@@ -10,7 +10,7 @@
 ----
 
 
-❯ 𝗬𝗼𝘂 𝗰𝗮𝗻 𝗰𝗿𝗲𝗮𝘁𝗲 𝗻𝗼𝘁 𝗝𝗲𝘀𝘀𝗶 𝗩𝗜𝗣 𝗘𝗱𝗶𝘁𝗶𝗼𝗻...👇
+❯ 𝗬𝗼𝘂 𝗰𝗮𝗻 𝗰𝗿𝗲𝗮𝘁𝗲 𝗻𝗼𝘁 WhiteQueen 𝗩𝗜𝗣 𝗘𝗱𝗶𝘁𝗶𝗼𝗻...👇
 
 (https://github.com/whiteshadowofficial/Jessi-whatsapp-bot-md2)
 
